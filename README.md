@@ -1,0 +1,1 @@
+# SMP-negri-1-korupsi
